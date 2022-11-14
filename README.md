@@ -1,1 +1,1 @@
-# EntryToProgramming
+# programki za mishki
